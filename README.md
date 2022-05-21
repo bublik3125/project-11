@@ -26,8 +26,14 @@
 Подсказка
 
 Кредит на 1 год:
+![2022-05-21_21-40-23](https://user-images.githubusercontent.com/93346327/169665201-2045d9f7-4630-4637-be3e-156698cbc1a7.png)
+
 
 Кредит на 2 года:
+![2022-05-21_21-40-10](https://user-images.githubusercontent.com/93346327/169665212-cf446cec-61c1-4f10-84d6-f66770d3ff5f.png)
+
 
 Кредит на 3 года:
+
+![2022-05-21_21-39-09](https://user-images.githubusercontent.com/93346327/169665216-63342c53-9a64-4f59-ac67-094b961305d1.png)
 
